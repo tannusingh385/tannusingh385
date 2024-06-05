@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning with Spiced Academy bootcamp.
 - :e-mail: How to reach me: tannusingh385@gmail.com
 - 😄 Pronouns: She/Her
-- Pizza is my faviorate :pizza:
+- Pizza is my favorite :pizza:
 - ⚡ Fun fact: Si-Fi Movies :smiley:
 - ## Achievements
 - Best employee of the year for consistent outstanding performance :trophy:
