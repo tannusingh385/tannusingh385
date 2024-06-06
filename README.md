@@ -10,4 +10,4 @@
 - Best employee of the year for consistent outstanding performance :trophy:
 - ## Lets connect
 - http://www.linkedin.com/in/tannu-singh-a0b4158 - Linkdin
-- Thanks for visiting my profile :smile:
+- ## Thanks for visiting my profile :smile:
